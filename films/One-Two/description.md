@@ -1,4 +1,3 @@
-One-Two
 Director：
 Shizheng Quan
 
